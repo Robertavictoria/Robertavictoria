@@ -1,6 +1,6 @@
 BEM VINDOS AO MEU PERFIL 👋
 
-Meu nome é ROBERTA VICTORIA DE OLIVEIRA 🤗💕
+Meu nome é ROBERTA VICTÓRIA DE OLIVEIRA 🤗💕
 
 Estou estudando no Alura 👩🏻‍💻
 
